@@ -18,25 +18,18 @@ i like both red and ash(squiddo too)
 ![Image](https://github.com/user-attachments/assets/2bb9cd14-aebd-40eb-95dd-4fd645f119e0)
 
 <div align="right">
+.
+.
+.
 might be sensitive!
 
 <div align="center">
   
  *⚠️*
- 
-i am hypersexual
   
 a bit narcissistic and egotistical
 
-adhd . ptsd
-
-schizophrenic . i have paranoia
-
-attachment issues
-
-i dont really like talking about these kinds of stuff
-
-i cannot comfort people 
+adhd . ptsd 
 
 i do not have that much empathy
 
