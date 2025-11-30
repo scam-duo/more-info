@@ -4,6 +4,8 @@ always a wip, i dont finish stuff
 
 hi my name is uhm _ry/ron/ash/swag/red/doons_ whatever you call me i dont care
 
+ashswag fictkin
+
 minor .
 aroace .
 🇵🇭
