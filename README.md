@@ -40,18 +40,6 @@ hateful
 if im sometimes mean, im sorry!!
 
 <div align="right">
-full dni list:
 
-proship
-
-age play/age regress
-
---›some‹-- fujoshis/fudanshi/yumes
-
-homophobes . transphobes
-
-racists
-
-donald trump supporters
-
-forsaken elliot fans(ok sorry)
+dni everyone thats weird 
+and this guy lemiro
