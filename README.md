@@ -10,6 +10,8 @@ minor .
 aroace .
 🇵🇭
 
+he/him
+
 eng/tag and i speak a tiny bit of spanish
 
 ![Image](https://github.com/user-attachments/assets/e6c299ff-1d08-42b1-b71e-dfa9bd5ed1b4)
