@@ -16,8 +16,9 @@ eng/tag and i speak a tiny bit of spanish
 
 minecraft fan since late 2014
 
-i like both red and ash(squiddo too)
+i like ashswag, reddoons, and squiddo!! >_< 
 ![Image](https://github.com/user-attachments/assets/2bb9cd14-aebd-40eb-95dd-4fd645f119e0)
+![Image](https://github.com/user-attachments/assets/4a508b96-4f91-4dfa-87ae-341ed97ab6d5)
 
 <div align="right">
 .
