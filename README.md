@@ -26,23 +26,6 @@ i like ashswag, reddoons, and squiddo!! >_<
 .
 .
 .
-might be sensitive!
+if im sometimes mean im sorry!
 
-<div align="center">
-  
- *⚠️*
-  
-a bit narcissistic and egotistical
-
-adhd . ptsd 
-
-i do not have that much empathy
-
-hateful 
-
-if im sometimes mean, im sorry!!
-
-<div align="right">
-
-dni everyone thats weird 
-and this guy lemiro
+i have a few mental problems but i am trying to get through it!
