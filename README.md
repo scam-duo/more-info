@@ -20,7 +20,7 @@ minecraft fan since late 2014
 
 i like ashswag, reddoons, wifies and parrotx2 ^_^
 ![Image](https://github.com/user-attachments/assets/2bb9cd14-aebd-40eb-95dd-4fd645f119e0)
-![Image](https://github.com/user-attachments/assets/f19f2496-f5f4-4574-a422-ea927b9c50cc)
+![Image](https://github.com/user-attachments/assets/f3ca4de2-1111-4f17-9814-d6d02fe5f668)
 
 <div align="right">
 .
