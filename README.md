@@ -2,7 +2,7 @@
 always a wip, i dont finish stuff
 <div align="center">
 
-hi my name is uhm _ry/ron/ash/swag/red/doons_ whatever you call me i dont care
+hi my name is uhm _ry/ron/ash/red/wifi/parot_ whatever you call me i dont care
 
 INFJ
 
@@ -12,7 +12,7 @@ aroace .
 
 he/him
 
-eng/tag and i speak a tiny bit of spanish
+eng/tag
 
 ![Image](https://github.com/user-attachments/assets/e6c299ff-1d08-42b1-b71e-dfa9bd5ed1b4)
 
