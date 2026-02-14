@@ -4,7 +4,7 @@ always a wip, i dont finish stuff
 
 hi my name is uhm _ry/ron/ash/red/wifi/parot_ whatever you call me i dont care
 
-INFJ
+ENFJ
 
 minor .
 aroace .
