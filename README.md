@@ -28,4 +28,6 @@ i like ashswag, reddoons, wifies and parrotx2 ^_^
 .
 if im sometimes mean im sorry!
 
+<div align="center">
+
 havent been active for a couple of months, mental state is really bad
