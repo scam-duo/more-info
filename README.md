@@ -1,4 +1,4 @@
-# yeah. info about me since i don't wanna make a new strawpage^_^
+# yeah. info about me because i don't wanna make a new strawpage 
 always a wip, i dont finish stuff
 <div align="center">
 
