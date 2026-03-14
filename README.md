@@ -47,3 +47,5 @@ most of the time i am silent, but that doesn't mean i hate you, i just dont real
 i don't talk or chat first(unless you're a person i trust/am comfortable with)
 
 i have no boundaries whatsoever. i could talk about any topic unless its about sexualization/my private information, i'll think about it.
+
+i do not have a dni list, just dont be weird or include me into any of your fetishes. keep that to yourself.
