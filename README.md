@@ -24,6 +24,8 @@ my favorite song artist is lemon demon
 
 i like birds and cats :)
 
+dont really have a favorite color but i do like purple/magenta, red, green. grey and blue.
+
 minecraft has been my favorite game since i was really young like around 4 years old
 
 i really like playing roblox retrostudio
