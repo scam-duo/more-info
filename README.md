@@ -10,7 +10,7 @@ minor .
 aroace .
 🇵🇭
 
-strictly he/him but i do not mind getting called other pronouns, wont bother correcting but it will make me feel uncomfortable around you
+he/him,,,ok??,,,, i wont bother correcting people about this
 
 i speak english and tagalog
 
