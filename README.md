@@ -10,7 +10,7 @@ minor .
 aroace .
 🇵🇭
 
-he/him,,,ok??,,,, i wont bother correcting people about this
+he/him,,, ok??,,,, i dont really mind getting misgendered
 
 i speak english and tagalog
 
