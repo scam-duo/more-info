@@ -38,7 +38,7 @@ _
 .
 .
 .
-my mental health has been dropping low, im not diagnosed, im sorry if i ever become mean to you, i don't really mean it. 
+im sorry if i ever become mean to you, i don't really mean it. 
 
 i encourage people to tell me what they're not comfortable to talk about! i might mention sensitive topics sometimes...
 
@@ -46,6 +46,6 @@ most of the time i am silent, but that doesn't mean i hate you, i just dont real
 
 i don't talk or chat first(unless you're a person i trust/am comfortable with)
 
-i have no boundaries whatsoever. i could talk about any topic unless its about sexualization/my private information, i'll think about it.
+i have no boundaries whatsoever.
 
 i do not have a dni list, just dont be weird or include me into any of your fetishes. keep that to yourself.
