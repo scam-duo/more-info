@@ -12,24 +12,12 @@ aroace .
 
 he/him,,, ok??,,,, i dont really mind getting misgendered
 
-i speak english and tagalog
-
 ![Image](https://github.com/user-attachments/assets/e6c299ff-1d08-42b1-b71e-dfa9bd5ed1b4)
 
 i like scam duo and odyssey duo 
 ![Image](https://github.com/user-attachments/assets/2bb9cd14-aebd-40eb-95dd-4fd645f119e0)
 ![Image](https://github.com/user-attachments/assets/f3ca4de2-1111-4f17-9814-d6d02fe5f668)
 i like ashswag and parrotx2 more than reddoons and wifies.
-
-my favorite song artist is lemon demon
-
-i like birds and cats :)
-
-dont really have a favorite color but i do like purple/magenta, red, green. grey and blue.
-
-minecraft has been my favorite game since i was really young like around 4 years old
-
-i really like playing roblox retrostudio
 
 _
 
