@@ -1,16 +1,10 @@
 # yeah. info about me because i don't wanna make a new strawpage 
-always a wip, i dont finish stuff
+always a wip, i dont finish stuff (✿◠ᴗ◠)
 <div align="center">
 
-hi my name is ron but most of my friends call me ry/ronnie/parrot/ash, whatever nickname you give me i dont care
+hi my name is ron but most of my friends call me ry/ronnie/parrot/ash, whatever nickname you give me i dont care 
 
-i dont know what my mtbi really is ok 
-
-minor .
-aroace .
-🇵🇭
-
-he/him,,, ok??,,,, i dont really mind getting misgendered
+im a minor yo
 
 ![Image](https://github.com/user-attachments/assets/e6c299ff-1d08-42b1-b71e-dfa9bd5ed1b4)
 
@@ -25,15 +19,8 @@ _
 <div align="left">
 .
 .
-.
-im sorry if i ever become mean to you, i don't really mean it. 
+. 
 
-i encourage people to tell me what they're not comfortable to talk about! i might mention sensitive topics sometimes...
+no boundaries, feel free to do stuff
 
-most of the time i am silent, but that doesn't mean i hate you, i just dont really like getting into people's talk/argument 
-
-i don't talk or chat first(unless you're a person i trust/am comfortable with)
-
-i have no boundaries whatsoever.
-
-i do not have a dni list, just dont be weird or include me into any of your fetishes. keep that to yourself.
+i do not have a dni list, be weird, just dont include me into any of your fetishes. keep that to yourself.
