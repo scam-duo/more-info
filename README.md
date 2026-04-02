@@ -23,4 +23,4 @@ _
 
 no boundaries, feel free to do stuff
 
-i do not have a dni list, be weird, i dont mind boundary breakers, just dont include me into any of your fetishes. keep that to yourself.
+i do not have a dni list. be weird. i dont mind cc boundary breakers, just dont include me into any of your fetishes --> specifically shotacon/lolicon and incest
