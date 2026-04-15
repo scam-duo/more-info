@@ -2,7 +2,7 @@
 always a wip, i dont finish stuff (✿◠ᴗ◠)
 <div align="center">
 
-hi my name is ron but most of my friends call me ry/ronnie/parrot/ash, whatever nickname you give me i dont care 
+hi my name is ron but most of my friends call me ry/ronnie/ryan/parrot/ash, whatever nickname you give me i dont care 
 
 im a minor yo
 
